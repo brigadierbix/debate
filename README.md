@@ -1,4 +1,4 @@
-[# debate](https://chatgpt.com/share/6aab40d0-91a4-83ee-81e7-b8924fd82cce)
+(https://chatgpt.com/share/6aab40d0-91a4-83ee-81e7-b8924fd82cce)
 
 # Format Style of the Debate Script
 
